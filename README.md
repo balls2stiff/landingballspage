@@ -10,3 +10,5 @@ As we say:
 > even at the expense of another's humor. 
 
 #### Update: Enter your email into the balls2stiff mailing list for a chance to legitmately win a $50 iTunes or Amazon giftcard. Winners will be allowed to choose one of the other. What do you think we are... savages? 
+
+#### Sidenote, everything is viewable in this repo. If anyone would like to know how our team put this together. 
