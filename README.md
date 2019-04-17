@@ -6,7 +6,7 @@ Perhaps there might even be some form of giveaways. Stay tuned kiddos.
 
 As we say:
 
-> There is nothing better than becoming better
+> There is nothing better than becoming better,
 > even at the expense of another's humor. 
 
 #### Update: Enter your email into the balls2stiff mailing list for a chance to legitmately win a $50 iTunes or Amazon giftcard. Winners will be allowed to choose one of the other. What do you think we are... savages? 
